@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Talha Bin Asif
--  🌱 I’m currently studying as an electrical engineer with a major in computer engineering.
-- 📫 How to reach me at https://www.linkedin.com/in/talhaasif112/
+- 🌱 I’m currently studying as an electrical engineer with a major in computer engineering.
+- 📫 You can reach me at https://www.linkedin.com/in/talhaasif112/
